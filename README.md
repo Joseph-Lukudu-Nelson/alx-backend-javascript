@@ -1,1 +1,1 @@
-Short Specializations
+Short Specializations period
